@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @nusratjahan007
-- 👀 I’m interested in makeups,cooking,coding and specially how airplanes fly.
+- 👋 Hi, I’m Nusrat!!
+- 👀 I’m interested in makeups,cooking,coding and making reels.
 - 🌱 I’m currently learning C language.
 - 💞️ I’m looking to collaborate on multinational companies and any kind of open source programmes.
 - 📫 How to reach me @sabahnusrat007@gmail.com and instagram:_nusratsaba
